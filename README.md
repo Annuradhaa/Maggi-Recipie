@@ -13,3 +13,7 @@
 - Add pinch of salt and turmuric powder and *maggi masala*.
 - At last add the boiled maggi.
 - serve it warm and enjoy the maggi
+
+### pro tip
+
+Dont share with anyone be it your own siblings :)
